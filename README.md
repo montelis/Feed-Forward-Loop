@@ -1,2 +1,0 @@
-# FUCKA
-MOFACKA
